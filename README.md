@@ -1,4 +1,4 @@
-### Boas Vindas ao meu perfil 🫀
+### Boas Vindas ao meu perfil 🐊
 
 Meu nome é Wagner Westin
 
